@@ -1,6 +1,6 @@
-### Hi there 👋
+### Hi I’m @ Stoyan Stoyanov👋
 
-Here are some ideas to get you started:
+I started my IT journey by signing up for SoftUni's free 2-month programming basics course in the month of September 2023.
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
