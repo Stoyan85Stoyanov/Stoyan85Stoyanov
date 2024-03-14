@@ -1,4 +1,4 @@
-### Hi I’m @ Stoyan Stoyanov👋
+### Hi I’m Stoyan Stoyanov👋
 
 I started my IT journey by signing up for SoftUni's free 2-month programming basics course in the month of September 2023.
 
