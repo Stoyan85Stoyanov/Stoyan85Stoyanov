@@ -12,5 +12,5 @@ I started my IT journey by signing up for SoftUni's free 2-month programming bas
 - ⚡ Fun fact: ...
   
 Follow your dreams!! 
-Don't stop fighting!!!
+Don't stop fighting!!
 
