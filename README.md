@@ -11,6 +11,7 @@ I started my IT journey by signing up for SoftUni's free 2-month programming bas
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
   
-Follow your dreams!! 
-Don't stop fighting!!
+Follow your dreams !!! 
+Don't stop fighting !!!
+When you fall you have to get up !!!
 
